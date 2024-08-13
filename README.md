@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on Mobile app project.
 - 📫 Please contact me via:
  ✨ Mail: nhinguyenit0711@gmail.com
- ✨ Facebook: https://www.facebook.com/NhiNguyen0711
  ✨ Telegram: @nhinguyen71
 
 <!---
